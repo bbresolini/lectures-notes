@@ -7,7 +7,7 @@ The _Seven Years War_ (1756-1763) was a conflict between Britain, Prussia, Franc
 Until 1757, Britain was losing because of "ineptitude, stupidity, and, some said, cowardic" of its military leaders. 
 Although when this leaders gave up office and William Pitt heads the new ministry called by George II.
 
-Pitt adopted a new 
+Pitt adopted a new strategy focusing Britain troops on New World and resourcing Prussia to fight France in the Continent. In 1758, Britain won 
 
     Also known as the 1st Earl of Chatham.
     Served as Prime Minister from 1766 to 1768.
