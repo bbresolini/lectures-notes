@@ -5,15 +5,11 @@ This chapter describes the war situation of Britain in the mid-seventeenth centu
 
 The _Seven Years War_ (1756-1763) was a conflict between Britain, Prussia, France and Spain. 
 Until 1757, Britain was losing because of "ineptitude, stupidity, and, some said, cowardic" of its military leaders. 
-Although when this leaders gave up office and William Pitt heads the new ministry called by George II.
+Although when this leaders gave up office and William Pitt heads the new ministry, called by George II, things starts to change.
 
-Pitt adopted a new strategy focusing Britain troops on New World and resourcing Prussia to fight France in the Continent. In 1758, Britain won 
+Pitt adopted a new strategy focusing Britain troops on New World and resourcing Prussia to fight France in the Continent. In Jully 1758, Britain won their first battle, tooking French fortress of Louisbourg and following a series of English victories.
 
-    Also known as the 1st Earl of Chatham.
-    Served as Prime Minister from 1766 to 1768.
-    Known for his leadership during the Seven Years' War (1756-1763), helping to expand the British Empire.
-    
-1757 - William Pitt - Prime Minister (1766-1768)
+
 George III - 1760
 
 
