@@ -1,8 +1,15 @@
 # The Glorious Cause: The American Revolution, 1763-1789
 
 ## Chapter 1
-This chapter describes the state of Britain e Britons in the mid-seventeenth century. 
+This chapter describes the war situation of Britain in the mid-seventeenth century. 
 
+
+    Also known as the 1st Earl of Chatham.
+    Served as Prime Minister from 1766 to 1768.
+    Known for his leadership during the Seven Years' War (1756-1763), helping to expand the British Empire.
+    
+1757 - William Pitt - Prime Minister (1766-1768)
+George III - 1760
 
 
 
