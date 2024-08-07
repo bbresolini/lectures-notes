@@ -5,7 +5,9 @@ This chapter describes the war situation of Britain in the mid-seventeenth centu
 
 The _Seven Years War_ (1756-1763) was a conflict between Britain, Prussia, France and Spain. 
 Until 1757, Britain was losing because of "ineptitude, stupidity, and, some said, cowardic" of its military leaders. 
-Though when George II called William Pitt as leader of cabinet. 
+Although when this leaders gave up office and William Pitt heads the new ministry called by George II.
+
+Pitt adopted a new 
 
     Also known as the 1st Earl of Chatham.
     Served as Prime Minister from 1766 to 1768.
